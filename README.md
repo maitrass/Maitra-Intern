@@ -1,1 +1,0 @@
-# Maitra-Intern
